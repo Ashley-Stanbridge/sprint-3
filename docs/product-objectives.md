@@ -1,4 +1,4 @@
-
+qq
 Product objectives.
 
 increase revenue of the owners cafe consultancy business. This will be achieved at first by expanding the clint base to a national scale. once the personal brand has gained more of a following and established itself as a household name in the cafe world we will expanded revenue again by partnering with and advertising for local business and professionals including
